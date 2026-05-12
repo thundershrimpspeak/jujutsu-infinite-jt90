@@ -1,4 +1,4 @@
-#  
+#  advanced Script for jujutsu infinite is the best jujutsu infinite Script, featuring fly and no clip. Safe and powerful for all your needs.
 
 
 
